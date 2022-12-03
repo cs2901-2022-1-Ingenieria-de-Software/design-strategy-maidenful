@@ -1,0 +1,1 @@
+ :	RBcs2901-2022-1-ingenieria-de-software_design-strategy-maidenlessn-t
